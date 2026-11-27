@@ -1,2 +1,2 @@
 # CoolGameDotCom
-Text
+vkusno i tochka
